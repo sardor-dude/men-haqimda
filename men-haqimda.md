@@ -1,0 +1,4 @@
+salom xaloyiq
+
+ishlar yaxshimi
+
